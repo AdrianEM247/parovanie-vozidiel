@@ -1,0 +1,1 @@
+# parovanie-vozidiel
